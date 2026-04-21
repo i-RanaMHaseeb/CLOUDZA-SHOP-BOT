@@ -1,1 +1,0 @@
-# CLOUDZA-SHOP-BOT
